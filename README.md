@@ -2,7 +2,7 @@
 - 👀 I’m interested in woodworking, board games, fantasy/science fiction movies and books and love to cook. And of course eat. 😃
 - 🌱 I’m a hobbyiest currently learning how to use my 3018 CNC Pro machine.
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me, pdfortinberry@att.net.
+- 📫 How to reach me, Bagenberry@gmail.com
 
 <!---
 Bagenberry/Bagenberry is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
